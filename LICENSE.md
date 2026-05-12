@@ -1,4 +1,4 @@
-#  
+#  premium Script for brainrot evolution offers the most advanced brainrot evolution Script, with unlimited stamina and teleport. Perfect for dominating
 
 
 
